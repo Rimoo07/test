@@ -1,1 +1,3 @@
 # rakusRimoo07
+
+aiueo
